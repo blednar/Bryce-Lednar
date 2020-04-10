@@ -1,6 +1,13 @@
-Kiboko-Life
+Bryce Lednar
 ===========
 
 Personal webpage 
 
-Experience and interests 
+Landing Page
+Professional Experience
+Projects
+  Lake Victoria Athletic Club
+  Concept: Startups
+  Concept: Underground Creamery
+  Concept: Working
+CV
